@@ -1,0 +1,1 @@
+Secondo esempio col secondo metodo
